@@ -1,0 +1,1 @@
+Be Bullish, no fading.
